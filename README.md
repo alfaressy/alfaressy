@@ -1,3 +1,3 @@
-# Hallo Boloo👋🏻
+# Welcome Boloo👋🏻
 ## Jenengku Muhammad Ardzan Alvarestha
-## Ojo Lali Madang 🤌🏼
+## Ojo Lali Madang🤌🏼
